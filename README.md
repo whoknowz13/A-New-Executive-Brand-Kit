@@ -1,0 +1,1 @@
+A.New Executive Brand Kit v1.0 - GitHub Pages hosted image version.
